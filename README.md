@@ -62,8 +62,8 @@ Enterprise Multi-Agent Career Assistant
 
 ## 🌐 Connect with Me
 
-- LinkedIn: https://linkedin.com/in/YOUR-LINKEDIN
-- Email: your@email.com
+- LinkedIn: https://linkedin.com/in/sougandhhhhh
+- Email: sougandh7ss@email.com
 
 ---
 
